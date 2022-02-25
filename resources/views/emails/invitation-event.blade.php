@@ -1,0 +1,1 @@
+Hola has recibido este mensaje para invitarte a ver este evento
